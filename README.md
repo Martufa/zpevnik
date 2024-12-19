@@ -1,4 +1,5 @@
-# Překrásně echt normativní indexovaný seznam alá zpěvníkovitosti *(Akronym ignorujte)*
+# Překrásně echt normativní indexovaný seznam alá zpěvníkovitosti 
+^*(Akronym ignorujte)*^
 
 ### Seznam písní
 
@@ -41,3 +42,16 @@
 
 ### Písně na přidání
 - Malování - Divokej Bill
+- The Masochism Tango - Tom Lehrer
+- Hlava mazaná - Jiří Korn
+- Bambusu je to král - Wadni bratři
+- Slečna Anna je za vodou - Slečna Anna je za vodou
+- Pohádka - Pokáč
+- Čas rozchodů - Kamelot
+- Před naší za naší - z filmu *Mrazík*
+- Píseň neznámeho vojína - Karel Kryl
+- You're The One - The Vogues
+- Montgomery - Karel Černý
+- Dva havrani - Asonance
+- Trh ve Scarborough - Spirituál kvintet
+- You'll Be Back - z muzikálu *Hamilton*
