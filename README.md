@@ -1,9 +1,7 @@
-# Překrásně echt normativní indexovaný seznam alá zpěvníkovitosti
-## (Akronym ignorujte)
+# Překrásně echt normativní indexovaný seznam alá zpěvníkovitosti *(Akronym ignorujte)*
 
 ### Seznam písní
 
-- I wanna go home - 
 - Always Look on the Bright Side of Life - Monthy Python
 - Amazonka - Hop Trop
 - Amerika - Lucie
