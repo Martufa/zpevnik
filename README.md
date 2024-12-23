@@ -55,3 +55,55 @@
 - Dva havrani - Asonance
 - Trh ve Scarborough - Spirituál kvintet
 - You'll Be Back - z muzikálu *Hamilton*
+- Studený nohy - Radůza
+- Andělská - Zuzana Navarová
+- Dálnice č. 5 - Žalman
+- Rána v trávě - Žalman
+- Ráno bylo stejný - Nezmaři
+- Píseň malých pěšáků - Žalman
+- Tak jsme vandrovali - Žalman
+- Tulácká ukolébavka - Žalman
+- Všech vandráků múza - Žalman
+- Ho ho watanay - Žalman
+- Za ruku mě vem - Žalman
+- Tymián - Žalman
+- Barevný šál - Žalman
+- Já, písnička - Žalman
+- Jako písek - Nezmaři
+- Jantarová zem - Žalman
+- Jdem zpátky do lesů - Žalman
+- Mys horn - Žalman
+- Nelituj - Žalman
+- Nezacházej, slunce - Žalman
+- Přijela jsem v cadillacu - Žalman
+- Čekej malá Gréto - Žalman
+- Dej mi tón - Žalman
+- Čtyři slunce - Vypsaná fixa
+- Dvě spálený srdce - Karel Plíhal
+- Ráda se miluje - Karel Plíhal
+- Pohádka - Karel Plíhal
+- Nosorožec - Karel Plíhal
+- Myš - Karel Plíhal
+- Bodláky ve vlasech - Nezmaři
+- Hej, člověče Boží - Nezmaři
+- Tak už mi má holka mává - Nezmaři
+- Jarní kurýr - Nezmaři
+- Tereza (Osamělý město) - Hoboes
+- Musíš jít dál - Nezmaři
+- Na rozloučenou - Žalman
+- Darmoděj - Nohavica
+- Sarajevo - Nohavica
+- Ještě mi scházíš - Nohavica
+- Mikymauz - Nohavica
+- Zatímco se koupeš - Nohavica
+- Bratříčku, zavírej vrátka - Karel Kryl
+- Dej mi víc své lásky - Olympic
+- Dva havrani - Asonance
+- Ďáblovy námluvy - Asonance
+- Boulevard of broken dreams - Green Day
+- Sound of silence - Simon and Garfunkel
+- Falling slowly - Glen Hansard a Markéta Irglová
+- I see fire - Ed Sheeran
+
+
+- Bídníci + PotO + TAD
