@@ -98,11 +98,9 @@
 - Zatímco se koupeš - Nohavica
 - Bratříčku, zavírej vrátka - Karel Kryl
 - Dej mi víc své lásky - Olympic
-- Dva havrani - Asonance
 - Ďáblovy námluvy - Asonance
 - Boulevard of broken dreams - Green Day
 - Sound of silence - Simon and Garfunkel
-- Falling slowly - Glen Hansard a Markéta Irglová
 - I see fire - Ed Sheeran
 
 
