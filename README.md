@@ -102,6 +102,9 @@
 - Boulevard of broken dreams - Green Day
 - Sound of silence - Simon and Garfunkel
 - I see fire - Ed Sheeran
+- After Hours - The Velvet Underground
+- I Will Always Think Of You - ze seriálu *BoJack Horseman*
+- Ten dělá to a ten zas tohle - z pohádky *Císařův pekař a pekařův císař*
 
 
 - Bídníci + PotO + TAD
