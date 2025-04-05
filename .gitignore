@@ -1,0 +1,5 @@
+# Ignore compile things
+zpevnikovitosti.*
+
+# Except the src
+!zpevnikovitosti.tex

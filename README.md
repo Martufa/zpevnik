@@ -1,0 +1,112 @@
+# Překrásně echt normativní indexovaný seznam alá zpěvníkovitosti 
+^*(Akronym ignorujte)*^
+
+### Seznam písní
+
+- Always Look on the Bright Side of Life - Monthy Python
+- Amazonka - Hop Trop
+- Amerika - Lucie
+- Antidepresivní rybička - Vypsaná fixa
+- Art Is Dead - Bo Burnham
+- Ať - Zrní
+- Autobus - Zrní
+- Až uslyším hvízdání - Poutníci
+- Bára - Kabát
+- Barevný šál - Žalman
+- Batalion - Spirituál Kvintet
+- Boulevard of Broken Dreams - Green Day
+- Bratříčku, zavírej vrátka - Karel Kryl
+- Čarodějnice z Amesbury - Asonance
+- Creep - Radiohead
+- Ďáblovy námluvy - Asonance
+- Dej mi víc své lásky - Olympic
+- Dva havrani - Asonance
+- Dva - Zrní
+- Exit Music (for a film) - Radiohead
+- Falling Slowly - Glen Hansard & Markéta Irglová
+- Fire With Fire - AliceBand
+- Free Me - Paul Jones
+- Happy Together - The Turtles
+- I Wanna' Go Home - Akane Sasu Sora
+- I'm Just Ken - Barbie
+- I'm Still Here - John Rzeznik
+- Já s tebou žít nebudu - Zuzana Navarová
+- Jabloně - Zrní
+- Jarní kurýr - Miki Ryvola
+- Ještě jedno kafe bych si dal - Druhá tráva
+- Ještě mi scházíš - Jaromír Nohavica
+- Killing Me Softly - N/A
+- Lemon tree - Fools Garden
+- Pramínek vlasů - Jiří Suchý
+- Strawberry Fields - The Beatles
+
+### Písně na přidání
+- Malování - Divokej Bill
+- The Masochism Tango - Tom Lehrer
+- Hlava mazaná - Jiří Korn
+- Bambusu je to král - Wadni bratři
+- Slečna Anna je za vodou - Slečna Anna je za vodou
+- Pohádka - Pokáč
+- Čas rozchodů - Kamelot
+- Před naší za naší - z filmu *Mrazík*
+- Píseň neznámeho vojína - Karel Kryl
+- You're The One - The Vogues
+- Montgomery - Karel Černý
+- Dva havrani - Asonance
+- Trh ve Scarborough - Spirituál kvintet
+- You'll Be Back - z muzikálu *Hamilton*
+- Studený nohy - Radůza
+- Andělská - Zuzana Navarová
+- Dálnice č. 5 - Žalman
+- Rána v trávě - Žalman
+- Ráno bylo stejný - Nezmaři
+- Píseň malých pěšáků - Žalman
+- Tak jsme vandrovali - Žalman
+- Tulácká ukolébavka - Žalman
+- Všech vandráků múza - Žalman
+- Ho ho watanay - Žalman
+- Za ruku mě vem - Žalman
+- Tymián - Žalman
+- Barevný šál - Žalman
+- Já, písnička - Žalman
+- Jako písek - Nezmaři
+- Jantarová zem - Žalman
+- Jdem zpátky do lesů - Žalman
+- Mys horn - Žalman
+- Nelituj - Žalman
+- Nezacházej, slunce - Žalman
+- Přijela jsem v cadillacu - Žalman
+- Čekej malá Gréto - Žalman
+- Dej mi tón - Žalman
+- Čtyři slunce - Vypsaná fixa
+- Dvě spálený srdce - Karel Plíhal
+- Ráda se miluje - Karel Plíhal
+- Pohádka - Karel Plíhal
+- Nosorožec - Karel Plíhal
+- Myš - Karel Plíhal
+- Bodláky ve vlasech - Nezmaři
+- Hej, člověče Boží - Nezmaři
+- Tak už mi má holka mává - Nezmaři
+- Jarní kurýr - Nezmaři
+- Tereza (Osamělý město) - Hoboes
+- Musíš jít dál - Nezmaři
+- Na rozloučenou - Žalman
+- Darmoděj - Nohavica
+- Sarajevo - Nohavica
+- Ještě mi scházíš - Nohavica
+- Mikymauz - Nohavica
+- Zatímco se koupeš - Nohavica
+- Bratříčku, zavírej vrátka - Karel Kryl
+- Dej mi víc své lásky - Olympic
+- Ďáblovy námluvy - Asonance
+- Boulevard of broken dreams - Green Day
+- Sound of silence - Simon and Garfunkel
+- I see fire - Ed Sheeran
+- After Hours - The Velvet Underground
+- I Will Always Think Of You - ze seriálu *BoJack Horseman*
+- Ten dělá to a ten zas tohle - z pohádky *Císařův pekař a pekařův císař*
+- Besame mucho - Andrea Bocelli
+- Good riddance - _ze hry Hades_
+
+
+- Bídníci + PotO + TAD
